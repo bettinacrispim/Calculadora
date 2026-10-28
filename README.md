@@ -1,4 +1,4 @@
-<img width="1080" height="1080" alt="30-39 (frasco)" src="https://github.com/user-attachments/assets/c643f6e7-c9f2-44f1-bf02-67eecb6b5380" />markdown
+markdown
 
 (IMAGENS DESIGN GENERATVIO/0-19 (merda).png)
 
